@@ -5,7 +5,6 @@
 - 💬 Ask me about Web Dev , Java!
 - 📫 How to reach me: bhandari28riya@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I'm BIG Foodie 🍕 also Gym Freak too  💪🏋️‍♀️ 
 
 
 
